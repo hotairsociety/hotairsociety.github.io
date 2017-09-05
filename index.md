@@ -10,4 +10,4 @@ at the [Geophysical Fluid Dynamics Laboratory](https://www.gfdl.noaa.gov) (GFDL)
 
 ## When is the next Hot Air Society Meeting
 
-Our next meeting will be 19 June 2017 at 2:00 pm.
+Our next meeting will be 18 September 2017 at 2:00 pm.
